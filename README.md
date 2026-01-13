@@ -1,4 +1,3 @@
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="632" height="454" alt="image" src="https://github.com/user-attachments/assets/3da50d94-4f5a-47e3-a702-9707205b0813" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="735" height="446" alt="image" src="https://github.com/user-attachments/assets/90779b8d-147f-4125-ab87-891755a0316d" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ"ㅤ 𝙨𝙩𝙞𝙡𝙡ㅤㅤ 𝙛𝙪𝙡𝙡 ㅤㅤ𝙤𝙛ㅤㅤ 𝙨𝙪𝙧𝙥𝙧𝙞𝙚𝙨.ㅤ "ㅤㅤ| ㅤㅤnanceㅤㅤ,ㅤㅤelㅤㅤ,ㅤㅤsam
